@@ -1,0 +1,1 @@
+I made this website so me and my friends can a place where we can study super quickly before exams instead of going through 100s of worksheets and google slides. This website has all the key information we need. It's not yet complete but I will complete it as we move on through the units in class
